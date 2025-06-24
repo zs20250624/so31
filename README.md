@@ -21,7 +21,7 @@
 
 点击访问：<a href="https://pi66.pages.dev/">TikTok成人版漫画</a>
 
-点击访问：<a href="https://pi79.pages.dev/">50度灰大全 </a>
+点击访问：<a href="https://pi79.pages.dev/">50度灰大全</a>
 
 点击访问：<a href="https://pi100.pages.dev/">PornHub黑料明星打尽</a>
 
@@ -31,7 +31,7 @@
 
 点击访问：<a href="https://pi40.pages.dev/">TikTok成人版影视最新资源一网</a>
 
-点击访问：<a href="https://pi69-01.pages.dev/">黑料社视频网站<在线/a>
+点击访问：<a href="https://pi69-01.pages.dev/">黑料社视频网站<在线</a>
 
 点击访问：<a href="https://pi08-1.pages.dev/">PornHub91吃瓜www黑料社最新</a>
 
